@@ -1,0 +1,1 @@
+# ggo-kirito-edited-theme
